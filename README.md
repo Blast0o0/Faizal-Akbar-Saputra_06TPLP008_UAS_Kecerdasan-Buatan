@@ -1,0 +1,2 @@
+# UAS_KECERDASAN-BUATAN
+Faizal Akbar - Tugas UAS - 06TPLP008
